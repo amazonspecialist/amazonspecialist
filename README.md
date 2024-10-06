@@ -8,7 +8,7 @@ Are you looking for an experienced Virtual Assistant/Agency to kickstart your Am
 
 𝗟𝗼𝗼𝗸 𝗻𝗼 𝗳𝘂𝗿𝘁𝗵𝗲𝗿!
 
-I'm Rida, your dedicated partner in navigating the Amazon marketplace. With a proven track record of successfully launching and scaling private label brands, starting from scratch, we understand the ins and outs of the e-commerce landscape.
+I'm Faizan Bhatti, your dedicated partner in navigating the Amazon marketplace. With a proven track record of successfully launching and scaling private label brands, starting from scratch, we understand the ins and outs of the e-commerce landscape.
 
 Our core values are
 
